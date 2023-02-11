@@ -1,0 +1,17 @@
+# The Stone and the Cataclysm of Hazenhelt
+
+For centuries, the Hazenhelt stone remained unchanged, its elemental powers providing stability to the world of Eldoria. As their civilizations grew, so did their desire for more power and resources. They saw in Hazenhelt means of obtaining this power and control over the other tribes. Additionally, as their understanding of the stone grew, they realized that it held great power and that whoever controlled the Hazenhelt would have a great advantage over the other tribes and the elements. This led to a competition for control of the stone, with each tribe seeking to gain an edge over the others.
+
+As the power-hungry tribes began to compete for control over the stone, the delicate balance of Eldoria was disturbed. Tensions rose, and the stone eventually suffered a tiny but catastrophic rupture, enough to release a great number of uncontrolled elemental powers into the world in an event known as the Cataclysm of Hazenhelt.
+
+The exact cause of Hazenhelt's rupture is not entirely known, but there are many theories and legends surrounding it. Some say that it was the result of a great conflict between rival tribes factions, while others believe that it was caused by a rogue wizard who attempted to tap into the stone's power for their own selfish purposes.
+
+There are also those who believe that Hazenhelt's rupture was a natural occurrence, caused by the imbalance of magic in the world. Over time, the amount of magic in the world had grown too great, causing Hazenhelt to become unstable. Regardless of the cause, the Hazenhelt's rupture had a huge impact throughout Eldoria.
+
+The Cataclysm became a turning point for the world of Eldoria. The once peaceful tribes were torn apart by the unstable elemental powers, and the land was forever changed. Some say that the spirits of the land were destroyed in the Cataclysm, while others believe they still linger, waiting for the world to heal. Regardless, the tribes were struggling to maintain control over the elemental powers.
+
+In an attempt to restore stability to the world, the Druids, using powerful magic, tried to control the spread of the elemental powers and rebuild Hanzenhelt. They realized that the power of Hazenhelt was too great to be controlled, its stability was forever shifted. The Druids of old stepped forward and made the ultimate sacrifice, dividing Hazenhelt power among the tribes of the realm. They shattered the stone into five pieces and entrusted each tribe with a piece of the stone, and with it, control over one of the elements of the world: earth, water, air, fire, and spirit. The druids were vanished from the world, leaving behind only the remnants of their knowledge and power as their magic became a thing of legend.
+
+The tribes were tasked with maintaining the balance of the elements. They formed common councils to oversee the power of the elements and to prevent any tribe from becoming too powerful. However, with time, greed and ambition began to overtake the tribes, and tensions rose between them as each tried to increase their own power. People were no longer united, and the world of Eldoria was once again in peril.
+
+Now, the future of the realm rests on the shoulders of the five tribes, who must work together to maintain the balance of the elements. For the people of Eldoria, the consequences of failure are too great to imagine, and the sacrifices of the druids must not be in vain.
